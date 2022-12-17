@@ -10,7 +10,7 @@ c) Approach and pitch mix vs.Right-Handed Batters
 
 Part 2:
 
-Advanced scouting report on Reid Detmers using
+Advanced scouting report on Reid Detmers using:
 
 - TruMedia
 - Baseball Savant
